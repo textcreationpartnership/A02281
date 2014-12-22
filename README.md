@@ -36,7 +36,9 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-Havvking, hunting, fouling, and fishing, with the true measures of blowing A vvorke right pleasant a
+
+1. ❧ To the Courteous and friendly Readers, the Author hereof wiſheth their good acceptation of his paines.
+
 **Types of content**
 
   * There are 438 **verse** lines!
